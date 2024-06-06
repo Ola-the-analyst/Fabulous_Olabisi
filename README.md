@@ -4,9 +4,10 @@ Having obtained Google Project Management Certificate and Customer Service Funda
 
 - I'm interested in Stakeholders satisfaction, as well as Customer(s) satisfaction, retention, and referals.
 
-- 💞️ I’m looking to collaborate on Project Management Data Analysis, Customer Support.
-- 📫 How to reach me ...https://www.linkedin.com/in/famoroti-olabisi-935447138/
+- I’m looking to collaborate on Project Management Data Analysis, Customer Support.
+- How to reach me ...https://www.linkedin.com/in/famoroti-olabisi-935447138/
+  
   olabisi.famoroti1@gmail.com
-- 😄 Pronouns: ... She/Her
-- ⚡ Fun fact: ... I love listening to motivational stories.
+- Pronouns: ... She/Her
+- Fun fact: ... I love listening to motivational stories.
 
